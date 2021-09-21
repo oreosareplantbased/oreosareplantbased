@@ -1,0 +1,3 @@
+- I’m @oreosareplantbased
+- I'm learning and working towards a better understanding
+- There isn't much I understand for now
